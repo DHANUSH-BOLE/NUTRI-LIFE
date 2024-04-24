@@ -46,4 +46,4 @@ We believe that together, we can make NutriLife the ultimate resource for nutrit
 
 ## Get Started
 
-Ready to take control of your nutrition and well-being? Visit [NutriLife](https://www.nutrilife.com) today to get started on your journey to a healthier you!
+Ready to take control of your nutrition and well-being? get started on your journey to a healthier you!
